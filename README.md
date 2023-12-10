@@ -1,0 +1,2 @@
+- https://www.novypro.com/profile_projects/diegoastete
+- https://www.linkedin.com/in/diegoastete/
